@@ -3,7 +3,9 @@
 ![Fasting benefits](https://zamzam-blog.s3.eu-west-1.amazonaws.com/wp-content/uploads/2022/03/ramadan-fasting-benefits-840x450.png)
 
 Today i'm gonna talk to you about the benefits of fasting and how it can improves your life and your health,
-first of all, ** what is fasting ? ** Fasting is the voluntary abstinence from food, drinking and smoking from dawn to sunset
+first of all,
+
+- ** what is fasting ? ** Fasting is the voluntary abstinence from food, drinking and smoking from dawn to sunset
 
 ## Health benefits
 
