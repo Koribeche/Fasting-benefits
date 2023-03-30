@@ -29,3 +29,8 @@ first of all, what is fasting ? Fasting is the voluntary abstinence from food, d
 
   - Fasting can lead to an increased level of self-control and resistance to temptation, which can have positive effects in other areas of your life. This practice can be especially helpful for individuals trying to overcome addiction, such as smoking. By fasting, one can gradually reduce their reliance on smoking and eventually quit the habit altogether.
   - Fasting not only helps one let go of negative habits but also adopt positive ones, resulting in personal growth and improvement.
+
+## Spiritual benefits
+
+- Fasting can increase your empathy towards those who don't have enough by giving you an experience of going without food and drink, it will make you more compassionate and more generous.
+- It can also help you appreciate what you do have and be grateful for it, rather than focusing on what you lack
